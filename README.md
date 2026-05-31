@@ -9,7 +9,7 @@ I am deeply passionate about data analysis, driven by the belief that **"data is
 ---
 
 ### ⚡ Outside of Code
-*When I'm not cleaning datasets or debugging, you can find me:*
+*When I'm not busy, you can find me:*
 
 - 🚵‍♂️ **Mountain Biking:** Hitting the trails to take in the scenic views and enjoy the outdoors.
 - 🎮 **Gaming:** Teaming up in Mobile Legends, managing my base in Clash of Clans, or playing through the Pokémon franchise.
